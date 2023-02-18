@@ -1,0 +1,6 @@
+# cracked-spoofer-ZarkyWoofer
+
+A shitty cracked hwid spoofer. The name of the spoofer being sold is "ZarkyWoofer" and the idiots have no idea what they're doing and they use discord as their cdn lmao
+
+
+Enjoy. No support will be given.
